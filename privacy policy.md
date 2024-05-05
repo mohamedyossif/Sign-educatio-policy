@@ -1,4 +1,4 @@
-Privacy Policy for Sign Education
+#Privacy Policy for Sign Education
 Privacy Policy
 Last updated: May 05, 2024
 
